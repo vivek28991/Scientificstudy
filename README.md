@@ -1,2 +1,0 @@
-# Scientificstudy
-Scientificstudy School Erp
